@@ -20,7 +20,7 @@ Tarvitseeko tätä edes perustella?!
 
 ### Tunnin juna Helsinkiin
 
-Koska turkulaisetkin sellaisen aikovat hankkia, niin kyllä meidänkin pitää.
+Koska turkulaisetkin sellaisen aikovat hankkia, niin kyllä meidänkin pitää. Skinnarilan insinöörit keksinevät kyllä toteutustavan.
 
 ## Yhteystiedot
 
