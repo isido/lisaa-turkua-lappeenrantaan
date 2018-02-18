@@ -8,11 +8,19 @@ Olen käytetettävissä luottamustehtäviin, jossa voimme edistää visiota turk
 
 ### Lisää latinankielen opintomahdollisuuksia Lappeenrannan kouluihin
 
+Opiskelemalla latinaa pystymme kytkeytymään Eurooppalaisiin juuriimme. Myös Turussa voi opiskella latinaa.
+
 ### Tietullit Taipalsaaren tielle
+
+Tai ainakin tien nopeusrajoitus pitäisi pudottaa 40 km/h:n. Taipalsaaren tie on nykyään rekkojen ja kommutoijien rallirata, jonka ylittäminen jalan tai pyörällä on miltei mahdotonta. Voisimme hyvin pilotoida tiellä tietulleja Taipalsaaren tiellä, mikä mahdollistaisi lähivuosina muutkin investoinnit kuin jäähallin rakentamisen.
 
 ### Lisää Beckettin näytelmiä Lappeenrannan kaupunginteatteriin
 
+Tarvitseeko tätä edes perustella?!
+
 ### Tunnin juna Helsinkiin
+
+Koska turkulaisetkin sellaisen aikovat hankkia, niin kyllä meidänkin pitää.
 
 ## Yhteystiedot
 
