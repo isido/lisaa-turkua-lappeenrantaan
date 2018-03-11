@@ -4,6 +4,12 @@ Haluan tehdä Lappeenrannasta miellyttävämmän sivistyskaupungin, ja se onnist
 
 Olen käytetettävissä luottamustehtäviin, jossa voimme edistää visiota turkulaisemmasta Lappeenrannasta yhdessä! Puolueet, ottakaa rohkeasti yhteyttä! Jos ette ota, perustan *Lisää Turkua*-kannatusyhdistyksen.
 
+Slogan mahdollisissa maakuntaavaaleissa: *Lisää Turkua Etelä-Karjalaan*
+
+Slogan eduskuntavaaleissa: *Lisää Turkua Suomeen*
+
+Slogan presidentinvaaleissa: *Pidetään Mäntyniemi varsinaissuomalaisena*
+
 ## Agendani
 
 ### Lisää latinankielen opintomahdollisuuksia Lappeenrannan kouluihin
