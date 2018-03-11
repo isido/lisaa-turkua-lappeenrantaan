@@ -2,7 +2,7 @@
 
 Haluan tehdä Lappeenrannasta miellyttävämmän sivistyskaupungin, ja se onnistuu tuomalla *Lisää Turkua Lappeenrantaan*!
 
-Olen käytetettävissä luottamustehtäviin, jossa voimme edistää visiota turkulaisemmasta Lappeenrannasta yhdessä!
+Olen käytetettävissä luottamustehtäviin, jossa voimme edistää visiota turkulaisemmasta Lappeenrannasta yhdessä! Puolueet, ottakaa rohkeasti yhteyttä! Jos ette ota, perustan *Lisää Turkua*-kannatusyhdistyksen.
 
 ## Agendani
 
@@ -16,12 +16,8 @@ Tai ainakin tien nopeusrajoitus pitäisi pudottaa 40 km/h:n. Taipalsaaren tie on
 
 ### Lisää Beckettin näytelmiä Lappeenrannan kaupunginteatteriin
 
-Tarvitseeko tätä edes perustella?!
+Tarvitseeko tätä edes perustella?! Ei tarvitse.
 
 ### Tunnin juna Helsinkiin
 
-Koska turkulaisetkin sellaisen aikovat hankkia, niin kyllä meidänkin pitää. Skinnarilan insinöörit keksinevät kyllä toteutustavan.
-
-## Yhteystiedot
-
-Minuun voi ottaa yhteyttä esimerkiksi [idka.com]Idkan kautta.
+Koska turkulaisetkin sellaisen aikovat hankkia, niin kyllä meidänkin pitää. Skinnarilan insinöörit keksinevät kyllä toteutustavan. Pääsisimme Lappeenrannasta Turkuun vaivaisessa kahdessa tunnissa!
